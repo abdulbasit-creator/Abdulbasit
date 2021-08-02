@@ -1,5 +1,5 @@
 ### Hi there, I'm Abdul Basit - aka [RazerRug] 👋
-    - Here is my Podcast Baffle Minds : 
+    - Here is my Podcast Baffle Minds : https://open.spotify.com/show/2xgL8hYVqeCR5dwObMoO9N
 
 
 ## I'm a Student and a curious Homo sapien!!
